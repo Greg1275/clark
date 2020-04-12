@@ -38,3 +38,7 @@ Dangerous radiation, like UV rays, X-rays and gamma rays are also far higher up 
 Be safe, be healthy. All the best wishes!
 See you guys on the flip side. ✌️🇨🇦 
 Or in hell.. 
+
+World Health Organization Coronavirus world map: 
+https://who.sprinklr.com/
+https://ncov2019.live/
